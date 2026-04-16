@@ -1,4 +1,4 @@
-<p><a href="https://www.couponcodes.workers.dev/verified/helium10/" target="_blank" rel="noopener noreferrer"><img width="1536" height="1024" alt="helium10-coupon" src="https://github.com/user-attachments/assets/9ca164b0-50f2-4f1e-a183-0d2504ce923a"></a><br></p>
+<img width="700" height="463" alt="helium10-coupon" src="https://github.com/user-attachments/assets/bd153a09-2a25-4e5f-99a2-9d66d330b159" />
 
 
 **Last Updated:** April 17, 2026  
