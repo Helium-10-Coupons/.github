@@ -2,6 +2,9 @@
 
 <p><a href="https://www.couponcodes.workers.dev/verified/helium10/" target="_blank" rel="noopener noreferrer"><img width="850" height="463" alt="helium10-coupon" src="https://github.com/user-attachments/assets/bd153a09-2a25-4e5f-99a2-9d66d330b159"></a><br></p>
 
+<img width="2052" height="176" alt="Helium-10-Coupon-Discount" src="https://github.com/user-attachments/assets/ce59ef2d-6cd6-4806-a1dc-30e5bf7e0b62" />
+
+
 If you're in a hurry, these are the main Helium 10 coupon codes worth knowing right now:
 
 | Coupon Code | Discount | Duration | Best For |
