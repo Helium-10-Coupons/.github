@@ -109,6 +109,9 @@ If a user chooses an eligible paid plan and the promo applies successfully, the 
 
 ## 🎫 Code #2: BLOGGINGSTART20 → 20% Off for 6 Months
 
+<img width="2510" height="354" alt="helium10-coupon-code" src="https://github.com/user-attachments/assets/e2998cda-07f8-427a-b0af-589b41ac6c89" />
+
+
 **Best for:** Users who want a reliable evergreen-style 6-month discount option.
 
 
@@ -131,6 +134,9 @@ Diamond Yearly:
 ---
 
 ## 🎫 Code #3: BLOGGINGSTART10 → 10% Off Recurring
+
+<img width="2530" height="370" alt="helium10-coupon" src="https://github.com/user-attachments/assets/a294cfa9-8877-4bd5-89bc-04519cdba7a1" />
+
 
 **Best for:** Long-term users who want ongoing recurring savings instead of a larger temporary discount.
 
