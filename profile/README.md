@@ -93,6 +93,9 @@ That makes the page more useful for both short-term and long-term buyers.
 
 ## 🎫 Code #1: 26APR35OFF6M → 35% Off for 6 Months
 
+<img width="2514" height="344" alt="helium10-coupon-code" src="https://github.com/user-attachments/assets/7d16f1eb-546e-4aa2-9582-75ea8bff7b85" />
+
+
 **Best for:** New users who want the strongest currently featured short-term discount.
 
 ### Good fit if you:
