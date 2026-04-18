@@ -10,6 +10,9 @@ If you're in a hurry, these are the main Helium 10 coupon codes worth knowing ri
 | **BLOGGINGSTART20** | ✅ 20% OFF | First 6 months | Users who want a reliable evergreen discount |
 | **BLOGGINGSTART10** | 💎 10% OFF | Recurring | Long-term committed sellers |
 
+<img width="970" height="562" alt="proof" src="https://github.com/user-attachments/assets/9b3fece3-afdf-42c8-aaca-65a10f4e8ab9" />
+
+
 > ⚠️ **Important:** Coupon codes and landing-page offers can change without notice. Always confirm the discounted total at checkout before completing payment.
 
 ---
