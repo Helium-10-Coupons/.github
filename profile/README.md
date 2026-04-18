@@ -90,9 +90,6 @@ That makes the page more useful for both short-term and long-term buyers.
 
 **Best for:** New users who want the strongest currently featured short-term discount.
 
-### Why this code matters
-This is the latest featured promotional code and should be shown first in the article because it gives readers the most aggressive visible short-term savings.
-
 ### Good fit if you:
 - are signing up for the first time,
 - want the biggest featured discount right now,
@@ -109,8 +106,6 @@ If a user chooses an eligible paid plan and the promo applies successfully, the 
 
 **Best for:** Users who want a reliable evergreen-style 6-month discount option.
 
-### Why keep this code in the post?
-Because a seasonal code may change, but an evergreen code often remains useful as a backup. Keeping it in the article makes the page more durable and more helpful for readers comparing options.
 
 ### Best for users who:
 - want a more familiar 6-month deal,
@@ -134,9 +129,6 @@ Diamond Yearly:
 
 **Best for:** Long-term users who want ongoing recurring savings instead of a larger temporary discount.
 
-### Why this code still matters
-
-Not every user wants the biggest short-term promo. Some users prefer a smaller but steady recurring discount if they already know Helium 10 fits their workflow.
 
 ### Best for users who:
 
